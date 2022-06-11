@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kyletyni, just a 19 year old tryna do his best.
+- 👋 Hi, I’m @kyletyni, just a 20 year old tryna do his best.
 - 👀 I’m interested in the piano, story telling, and computers.
 - 🌱 I’m currently purusing a BS in Computer Enginnering from UC Irvine.
 - 📫 You can contact me at my email: brightspecs@gmail.com
